@@ -1,1 +1,0 @@
-# atoosaparsa.github.io
